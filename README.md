@@ -14,4 +14,4 @@
 <p align="center"> epic people PLEASE interact,,,idk if theres any avm or jse egos people out there but please also interact,,PUHLEASEEE!!!! 
 <p align="center"> If you're a minor please dont attempt to add me as a friend!! but i'm always happy to yap :) endosystems and weird (shed/ed/any of that) twitter people dni tho, not a fan of you lot
 <p align="center"> My stamp and blinkie collection is on my artfight profile! i could move them all here,,,but truly, i am not arsed 👍
-
+<p align="center"> I'm autistic and appreciate when tone tags are used!!! (may also have ADHD and BPD)
